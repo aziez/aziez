@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Hi I'M Aziz
 🔭 I am one of the IT companies in a well-known company in Jakarta,<br>     ✍️IT SUPPORT<br>     ✍️MOBILE APPS DEV<br>     ✍️WEB DEVELOPER<br>👯 NG, Ionic, Java, PY<br>🤝 I’m looking for help with<br>🌱 I’m currently learning on University Of Pamulang <br>💬 Ask me about<br>⚡ Fun fact<br><br>
 
 
